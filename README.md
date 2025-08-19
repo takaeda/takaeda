@@ -1,6 +1,3 @@
-# LINK TO OTHER SNS
-
-* [LinkedIn](https://www.linkedin.com/in/takaeda/)
-* [Facebook](https://www.facebook.com/takaeda)
-* [Instagram](https://www.instagram.com/takaeda/)
-* [X](https://x.com/takaeda)
+Turning chaos into clarity with data.  
+Founder & CEO of toorPIA | Delivering predictive insights for smarter industries.  
+Educator | Guiding the next generation to embrace higher dimensions of thinking.
